@@ -1,5 +1,5 @@
 <p align="center">  gay ftm ukrainian cool guy!!! 
-often sitting with my mama on ponytown! using whatever skin is newest which rn is dr spencer reid from criminal minds!
+often sitting with my mama on ponytown! using whatever skin is newest which rn is dr spencer reid from criminal minds / tv girl skin:3!
 
 
 <p align="center"> <img src=https://i.pinimg.com/originals/2c/fb/dd/2cfbddf6f8728926da3e05222870d0ba.gif> </p>
