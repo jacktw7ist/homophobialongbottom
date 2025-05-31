@@ -1,3 +1,4 @@
+### just a basicer version of my main readme?!?!?!
 <p align="center">  gay ftm ukrainian cool guy!!! 
 often sitting with my mama on ponytown! using whatever skin is newest which rn is dr spencer reid from criminal minds / tv girl skin:3!
 
@@ -6,6 +7,6 @@ often sitting with my mama on ponytown! using whatever skin is newest which rn i
 
   <p align="center"> i make um really sexual jokes sometimes if that makes u uncomf tell me ! i also say kys/kms JOKINGLY i would never want anyone 2 do that </p>
 
-  <p align="center"> this is STILL a wip it just looks prettier ❤️ </p>
+  <p align="center"> this is STILL a wip it just looks simpler! </p>
 
   
