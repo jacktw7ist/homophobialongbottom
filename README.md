@@ -1,6 +1,6 @@
 ### just a basicer version of my main readme?!?!?!
 <p align="center">  gay ftm ukrainian cool guy!!! 
-often sitting with my mama on ponytown! using whatever skin is newest which rn is dr spencer reid from criminal minds / tv girl skin:3!
+often sitting with my mama on ponytown! using whatever skin is newest which rn is eddie munson , billy hargrove n steve harrington ;.3!
 
 
 <p align="center"> <img src=https://i.pinimg.com/originals/2c/fb/dd/2cfbddf6f8728926da3e05222870d0ba.gif> </p>
